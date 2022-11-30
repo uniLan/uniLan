@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @uniLan
+- 👋 Hi, I’m @uniLan AKA Johnson Lin
 - 🌱 I’m currently learning EET
 - 💞️ I’m looking to collaborate on N/A
 - 📫 How to reach me N/A
